@@ -1,1 +1,1 @@
-![image](https://github.com/printfChins/SmallTree_VORON1.8/assets/53858352/79d627b6-e34d-40cc-b8fd-2dd79cb87efa)
+![image](https://github.com/printfChins/SmallTree_VORON1.8/assets/53858352/e4f6f453-3bdc-487b-8a2d-df0f89924884)
